@@ -1,4 +1,4 @@
-![215616AE-5A9B-4518-A709-08F363BE4A9A](https://github.com/sIowdive/sIowdive/assets/154692721/cf2e4434-7562-43db-9508-ac3dddf60e4a)
+![IMG_3934](https://github.com/sIowdive/sIowdive/assets/154692721/aca3f4e6-4d67-4d2b-9a89-3b1d1e04a37f)
 
 >zay › cora
 
