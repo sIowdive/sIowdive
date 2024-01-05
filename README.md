@@ -5,6 +5,8 @@
 
 ᶻ 𝗓 𐰁
 
+read rentry byi
+
 everything i say is satire, any offensive slurs or jokes i can reclaim
 
 18+ & 13- dni
